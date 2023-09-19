@@ -15,4 +15,4 @@ Meu nome é Fabio Henrique
 
 
 
-![image](https://github.com/tuntakamon/tuntakamon/assets/145451955/3c43ef8e-7eb9-48d9-9dc5-ce8c8280f2e6)
+![](https://media.tenor.com/MHyqhLJ9bfYAAAAd/erm-aksually-nerd.gif)
